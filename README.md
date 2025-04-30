@@ -7,4 +7,4 @@ Ngoài ra, mình cũng có 1 kênh tiktok mong mọi người có thể q
 
 [`Đi tù có gì vui? (@ditucogivui)`](https://www.tiktok.com/@ditucogivui)
 
-![image](https://i.imgur.com/DRu8cTw.png)
+![image](https://i.imgur.com/ml3LaRJ.png)
