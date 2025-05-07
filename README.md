@@ -1,4 +1,4 @@
-**ALL CODE TRÊN TRANG GITHUB NÀY ĐƯỢC VIẾT BẰNG AI**
+**TOÀN BỘ CODE TRÊN TRANG GITHUB NÀY ĐƯỢC VIẾT BẰNG AI**
 
 
 Mọi ý kiến đóng góp, xin gửi về [luvideez@outlook.com](mailto:luvideez@outlook.com)
